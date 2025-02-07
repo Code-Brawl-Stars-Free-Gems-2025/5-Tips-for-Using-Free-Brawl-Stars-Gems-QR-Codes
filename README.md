@@ -2,7 +2,7 @@
 
 <div class="ds-markdown ds-markdown--block">
 <p>Using Brawl Stars Gems QR codes can be a fun and efficient way to enhance your gaming experience. Here are five tips to make the most out of them:</p>
-<h2><a href="https://allresources.xyz/brawlstars.html/">LEARN MORE</a></h2>
+<h2><a href="https://sites.google.com/view/brawl-stars-1000-free-gems-unl/">LEARN MORE</a></h2>
 <h3>1. <strong>Verify the Source of the QR Code</strong></h3>
 <ul>
 <li>
